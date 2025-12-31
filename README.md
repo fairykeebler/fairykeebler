@@ -15,15 +15,13 @@ pedophiles, zoophiles, homophobes, trump supporters, darkshippers, proshippers, 
 
 🎭 I have a lot of interests, but my main interests right now are supernatural, grey's anatomy, buffy the vampire slayer, the long walk, breaking bad, my little pony, the boys, aqua teen hunger force, vintage physical media, music, fleetwood mac, weezer, medicine, rock, skincare, marvel, dc, art, 70's-90's, martial arts, dance, and plenty of others!
 
-🎞️ At times I may distance myself and be more reserved. (just in general not in game)
-
 --
 
 Boundaries
 
 - If I'm playing pony town, feel free to interact! Interact in this sense means cuddle & hug, talk or whatever, just dont be weird towards me.
 
-- Please try not to trauma dump all the time, if we just met that's a bit weird.
+- I block freely
 
 - Do not take it personally if I dont friend you, I rarely request or accept.
 
