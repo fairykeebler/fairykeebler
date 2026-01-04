@@ -3,26 +3,7 @@
 🌱 Basic DNI (do not interact):
 proship, homophobes, trump supporters, darkship, and anyone who justifies the things listed above. I block freely!
 
---np                    Open the "Now Playing" TUI widget.
-                      (Music.app track must be actively
-		      playing or paused)
-np -t		      Open in text mode (disables album art)
-
-np keybindings:
-
-p                     Play / Pause
-f                     Forward one track
-b                     Backward one track
->                     Begin fast forwarding current track
-<                     Begin rewinding current track
-R                     Resume normal playback
-+                     Increase Music.app volume 5%
--                     Decrease Music.app volume 5%
-s                     Toggle shuffle
-r                     Toggle song repeat
-q                     Quit np
-Q                     Quit np and Music.app
-?                     Show / hide keybindings
+-
 
 🐞 You can call me my in-game name or lena, idm! I'm not sure how to code but ill eventually figure it out so for the time being I'll write about myself here. 
 
