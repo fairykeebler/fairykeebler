@@ -4,6 +4,7 @@
 proship, homophobes, trump supporters, darkship, and anyone who justifies the things listed above. I block freely!
 
 --
+https://github.com/pythoninthegrass/apple-music-cli.git
 
 🐞 You can call me my in-game name or lena, idm! I'm not sure how to code but ill eventually figure it out so for the time being I'll write about myself here. 
 
