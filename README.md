@@ -13,7 +13,7 @@ proship, homophobes, trump supporters, darkship, and anyone who justifies the th
 
 🪩 Personality: Infj-t - This is a part of the mbti. "What does it mean?" Introverted, Intuitive, and deep thinkers who are turbulent advocates, and tend to be more reserved with a tight circle of friends.
 
-🎭 I have a lot of interests, but my main interests right now are supernatural, grey's anatomy, dexter, buffy the vampire slayer, the long walk, breaking bad, the boys, aqua teen hunger force, vintage physical media, music, fleetwood mac, weezer, medicine, rock, skincare, marvel, dc, art, 70's-90's, martial arts, dance, and plenty of others!
+🎭 I have a lot of interests, but my main interests right now are supernatural, grey's anatomy, dexter, buffy the vampire slayer, malcolm in the middle, smallville, breaking bad, the boys, x men, aqua teen hunger force, vintage physical media, music, fleetwood mac, weezer, medicine, rock, selfcare, dc, marvel, art, 70's-90's, martial arts, and plenty of others!
 
 --
 
