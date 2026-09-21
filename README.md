@@ -1,5 +1,9 @@
 # fairykeebler
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=xxrvhlbtymlg4juctnqtifzor&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=xxrvhlbtymlg4juctnqtifzor&redirect=true)
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=xxrvhlbtymlg4juctnqtifzor&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=xxrvhlbtymlg4juctnqtifzor&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 dni (do not interact):
 proship, homophobes, trump supporters, darkship, and anyone who justifies the things listed above. I block freely!
