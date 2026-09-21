@@ -4,7 +4,8 @@
 dni (do not interact):
 proship, homophobes, trump supporters, darkship, and anyone who justifies the things listed above. I block freely!
 
-![](https://komarev.com/ghpvc/?username=fairykeebler)
+![](https://glitch.me)
+
 
 
 I go by she/her and prefer that but I dont mind if you use different pronouns.
